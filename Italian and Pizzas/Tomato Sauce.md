@@ -19,7 +19,7 @@ tags: Cooking, Recipe
 * 1/4 teaspoon crushed red pepper flakes
 * dried chopped parsley (enough to cover surface of sauce)
 * 4 rounded table spoons sugar (splenda substitute works fine)
-* 1 tablespoon nu-salt
+* 1 tablespoon salt
 
 Note: All tomato products should be the "no salt added" varieties.
 
@@ -27,11 +27,6 @@ Note: All tomato products should be the "no salt added" varieties.
 
 1. Sauté peppers, Onions, and garlic in olive oil for about 5 minutes
 1. add next 11 ingredients. Stir well. 
-1. bring to boil, reduce heat and simmer for 2.5 hours. Stir often enough to make sure that nothing gets burnt over over cooked on the bottom. Every 15 to 20 minutes works well.
-1. Let sit in pot on stove for 3 or 4 hours (longer is OK). 
-1. Refrigerate in air tight container.  
-
-
-
-Tastes best if you let it sit in the fridge for at least 24 hours. Makes enough for us to last about 3 to 4 weeks. Seems to keep well over that period of time in fridge.
-
+1. bring to boil, reduce heat and simmer for 2.5 hours. Stir often, to prevent burning. 
+2. Turn stove off, let sit in pot on stove for 3 or 4 hours 
+3. Refrigerate in air tight container, refridgerate for 24 hours before using.
